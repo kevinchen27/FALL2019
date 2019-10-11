@@ -9,5 +9,9 @@ Citlally Reynoso
 
 Chloe Wang
 
+Kevin Chen
+
 ## Comments
 Hello my name is Citlally Reynoso!
+
+I'm Kevin. Statistics may be dull, but it does have its Moments
